@@ -35,11 +35,63 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The golden Aphroditis a pleasant discourse, penned by Iohn Grange Gentleman, student in the common l
+
+1. ¶ To the right Honorable and his singular good Lord the Lord Sturton, Iohn Grange vvisheth health, vvelth, and prosperitie, vvith increase of Honour.
+
+1. ¶ To the Courtelike Dames and Ladie-like Gentlevvomen, the Authour sendeth greeting.
+
+1. Cuiquam.
+
+1. C. G. Maister of Arte, in the prayse of the Authour.
+
+1. W. S. in commendation of the Aucthor.
+
 #####Body#####
-The golden Aphroditis a pleasant discourse, penned by Iohn Grange Gentleman, student in the common l
+
+1. Golden Aphroditis.
+
+1. The conclusion of this Booke, and an Introduction of the Booke followyng.
+GRANGES GARDEN: Conteyning as well certaine verses vpon sundry poyntes, in Metre, as also diuerse Pa
+1. ¶ A valiant yong Gentleman beyng trayned vp in Martiall provves, and allured by euill counsell to womens follies, bewayleth his life in this order.
+
+1. The force of Beauties pryce.
+
+1. A Gentleman re•ealeth his former life.
+
+1. A Gentleman suyng for grace.
+
+1. The paynting of a Curtizan.
+
+1. A Gentleman seing his brother desirous to goe to the seas, vvrote these verses following, vnwitting to any, and layed them in his brothers vvay.
+
+1. A Gentleman halfe in dispayre seeketh release.
+
+1. The description of the loue of a Gentleman and a Gentlevvoman.
+
+1. A Song whiche the Gentlewoman made, before she slevve hir selfe.
+
+1. An answere to a letter written vnto him by a Curtyzan.
+
+1. A song of a Louer, wherein he shewes his loue tovvarde his Lady.
+
+1. A Gentleman being halfe forsaken by mistrust, appealeth to his Lady againe by humilitie.
+
+1. A newe Married man being stung vvith vvedlocke, declareth his minde Cantico more, vpon this texte: Content your selfe as well as I, let reason rule your minde, As Cuck•ldes come by destinie, so Cucko••s sing by kinde.
+
+1. The Louer forsaken, bewayleth his chaunce.
+
+1. The Louer hearing his Lady to be caste in dumpes, vvriteth vnto hir in this order.
+
+1. I. G. biddeth his friende A. T. good morrovve.
+
+1. His good night to the same A. T.
+
+1. His Farewell to the same.
+
 #####Back#####
-The golden Aphroditis a pleasant discourse, penned by Iohn Grange Gentleman, student in the common l
+
+1. Epilogus.
+Imprinted at London by Henry Bynneman.
 **Types of content**
 
   * There are 1743 **verse** lines!
